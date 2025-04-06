@@ -1,4 +1,4 @@
-wippity wip (i KNOW it looks ugly im too lazy to make it look nice 🦭🦭🦭)🐦‍🔥wtf new emoji
+wippity wip (i KNOW it looks ugly im too lazy to make it look nice 🦭🦭🦭)🫩wtf new emoji
 
 ![](https://i.postimg.cc/kgwR34b6/d7f73e60c909a2b151d293d133654f85bbccd543r1-540-303-hq.gif)
 
