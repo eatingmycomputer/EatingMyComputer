@@ -12,4 +12,4 @@ Main interests :: cookie run , witch hat atelier , osc , pearl houzuki , warrior
 
 ![](https://i.postimg.cc/VsWTsYGB/d2jti8a-cd1ac607-1f17-44ae-9983-97cdc26c8c50.png)![](https://i.postimg.cc/6pgbbTqw/d2vkrlx-23fb3655-2efe-458a-8c75-bbc5157aed20.png)![](https://i.postimg.cc/HsLSpb7d/d2jtiby-868a0a4b-c84e-4dd6-9aab-d14cd0b918f9.png)
 
-
+[![marquee](marquee.svg)](https://github.com/eatingmycomputer/EatingMyComputer/blob/main/marquee.svg)
