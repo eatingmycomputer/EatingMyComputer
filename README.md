@@ -1,5 +1,7 @@
 wippity wip (i KNOW it looks ugly im too lazy to make it look nice 🦭🦭🦭)🫩wtf new emoji
 
+![](https://komarev.com/ghpvc/?username=your-github-username&color=f0ca7c)
+
 ![](https://i.postimg.cc/kgwR34b6/d7f73e60c909a2b151d293d133654f85bbccd543r1-540-303-hq.gif)
 
 ![Chopper Pixel](https://i.postimg.cc/k41bwRMv/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727935352f30393963.gif)
