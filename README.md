@@ -2,7 +2,7 @@ wippity wip (i KNOW it looks ugly im too lazy to make it look nice 🦭🦭🦭)
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=82b9b0)
 
-![](https://files.catbox.moe/2libur.gif)
+[![pee.gif](https://i.postimg.cc/JnKzZpD3/pee.gif)](https://postimg.cc/VrrwcBF5)
 
 ![feesh](https://i.postimg.cc/YqWp8rTy/3-A47381-A-49-BC-45-ED-9835-ED01518-C5-AE2.gif)
 Ezra / Stanley . he/him ![Shell](https://i.postimg.cc/QdSxK62X/1b5b7a90.gif)
