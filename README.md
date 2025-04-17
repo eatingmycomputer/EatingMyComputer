@@ -1,14 +1,14 @@
 wippity wip (i KNOW it looks ugly im too lazy to make it look nice 🦭🦭🦭)🫩wtf new emoji
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=f0ca7c)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=82b9b0)
 
-![](https://i.postimg.cc/kgwR34b6/d7f73e60c909a2b151d293d133654f85bbccd543r1-540-303-hq.gif)
+![](https://i.postimg.cc/s2wQyfj4/tongari-boushi-no-atelier-atelier-of-witch-hat.gif)
 
-![Chopper Pixel](https://i.postimg.cc/k41bwRMv/68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727935352f30393963.gif)
-Ezra / Stanley . he/him ![Nami](https://i.postimg.cc/bN2tHv71/430712378-dc4eb662-2d43-4522-891c-409e91451272.gif)
+![feesh](https://i.postimg.cc/YqWp8rTy/3-A47381-A-49-BC-45-ED-9835-ED01518-C5-AE2.gif)
+Ezra / Stanley . he/him ![Shell](https://i.postimg.cc/QdSxK62X/1b5b7a90.gif)
 
 auDHD and OCD i dont bite i promise 
-![image](https://i.postimg.cc/kM2cz7rg/430712650-4b555170-018a-4c2e-81ac-0a6bca3cb490.gif) Special Interests :: Splatoon and One Piece
+![kittyty](https://i.postimg.cc/3xLYxkGN/24acb60f.gif) Special Interests :: Splatoon and One Piece
 
 Main interests :: cookie run , witch hat atelier , osc , pearl houzuki , warrior cats and guide to the end of the universe !!
 
@@ -17,7 +17,5 @@ im from australia, UTC/GMT+8 also yes we do infact eat kangaroos
 [perona my gorgeous queen] Mihawk pregnant w triplets
 
 (i also have a horrible memory and i suck at remembering people! sorry!!!)
-
-![](https://i.postimg.cc/VsWTsYGB/d2jti8a-cd1ac607-1f17-44ae-9983-97cdc26c8c50.png)![](https://i.postimg.cc/6pgbbTqw/d2vkrlx-23fb3655-2efe-458a-8c75-bbc5157aed20.png)![](https://i.postimg.cc/HsLSpb7d/d2jtiby-868a0a4b-c84e-4dd6-9aab-d14cd0b918f9.png)
 
 [![marquee](marquee.svg)](https://github.com/eatingmycomputer/EatingMyComputer/blob/main/marquee.svg)
