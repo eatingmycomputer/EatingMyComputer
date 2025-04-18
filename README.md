@@ -18,4 +18,4 @@ im from australia, UTC/GMT+8 also yes we do infact eat kangaroos
 
 (i also have a horrible memory and i suck at remembering people! sorry!!!)
 
-[![marquee]()]()
+[![marquee](mymarquee.svg)](https://github.com/eatingmycomputer/EatingMyComputer/blob/main/mymarquee.svg)
