@@ -1,4 +1,4 @@
-wippity wip (i KNOW it looks ugly im too lazy to make it look nice 🦭🦭🦭)🫩wtf new emoji
+wippity wip (i KNOW it looks ugly im too lazy to make it look nice 🦭🦭🦭) ignore how the gif isnt loading properly LOL
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=82b9b0)
 
