@@ -10,7 +10,7 @@ Ezra / Stanley . he/him ![Shell](https://i.postimg.cc/QdSxK62X/1b5b7a90.gif)
 auDHD and OCD i dont bite i promise 
 ![kittyty](https://i.postimg.cc/3xLYxkGN/24acb60f.gif) Special Interests :: Splatoon and One Piece
 
-Main interests :: cookie run , witch hat atelier , osc , pearl houzuki , warrior cats and guide to the end of the universe !!
+Main interests :: cookie run , witch hat atelier , osc , pearl houzuki , warrior cats, and guide to the end of the universe !!
 
 im from australia, UTC/GMT+8 also yes we do infact eat kangaroos 
 
