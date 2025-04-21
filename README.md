@@ -1,6 +1,6 @@
 wippity wip (i KNOW it looks ugly im too lazy to make it look nice 🦭🦭🦭)
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=82b9b0&label=Spells+Drawn)
+![](https://komarev.com/ghpvc/?username=eatingmycomputer&color=82b9b0&label=Spells+Drawn)
 
 [![marquee](tongari-boushi-no-atelier-atelier-of-witch-hat.gif)](https://github.com/eatingmycomputer/EatingMyComputer/blob/main/tongari-boushi-no-atelier-atelier-of-witch-hat.gif)
 
