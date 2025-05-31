@@ -1,6 +1,6 @@
 wippity wip (i KNOW it looks ugly im too lazy to make it look nice 🦭🦭🦭)
 
-![](https://komarev.com/ghpvc/?username=eatingmycomputer&color=82b9b0&label=Spells+Drawn)
+![](https://komarev.com/ghpvc/?username=eatingmycomputer&color=ed85ab&label=Customer+Requests)
 
 ![marquee](https://i.postimg.cc/9F9GxhzV/tongari-boushi-no-atelier-atelier-of-witch-hat-1-copy.gif)
 
