@@ -2,10 +2,10 @@ wippity wip (i KNOW it looks ugly im too lazy to make it look nice 🦭🦭🦭)
 
 ![](https://komarev.com/ghpvc/?username=eatingmycomputer&color=ed85ab&label=Customer+Requests)
 
-![marquee](https://i.postimg.cc/9F9GxhzV/tongari-boushi-no-atelier-atelier-of-witch-hat-1-copy.gif)
+![marquee](https://tenor.com/en-GB/view/tenna-deltarune-chapter-3-deltarune-chapter-3-ant-tenna-gif-12785399449529030869)
 
 ![feesh](https://i.postimg.cc/YqWp8rTy/3-A47381-A-49-BC-45-ED-9835-ED01518-C5-AE2.gif)
-Ezra / Stanley . he/him ![Shell](https://i.postimg.cc/QdSxK62X/1b5b7a90.gif)
+Ezra . he/him ![Shell](https://i.postimg.cc/QdSxK62X/1b5b7a90.gif)
 
 auDHD and OCD i dont bite i promise 
 ![kittyty](https://i.postimg.cc/3xLYxkGN/24acb60f.gif) Special Interests :: Splatoon and One Piece
