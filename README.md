@@ -11,4 +11,3 @@
 </p>
 
 
-[perona my gorgeous queen] Mihawk pregnant w triplets (hi collide)
