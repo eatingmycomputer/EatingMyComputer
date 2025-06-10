@@ -1,6 +1,6 @@
 wippity wip (i KNOW it looks ugly im too lazy to make it look nice 🦭🦭🦭)
 
-![](https://komarev.com/ghpvc/?username=eatingmycomputer&color=ed85ab&label=Customer+Requests)
+![](https://komarev.com/ghpvc/?username=eatingmycomputer&color=ed85ab&label=I+LOVE+TV)
 
 ![marquee](https://tenor.com/en-GB/view/tenna-deltarune-chapter-3-deltarune-chapter-3-ant-tenna-gif-12785399449529030869)
 
