@@ -21,3 +21,6 @@ IM WORKING ON IT 😭😭😭
 
 
 [ac](https://x.com/battleguitar)
+
+my wife ⬇️⬇️
+![pegarl](https://files.catbox.moe/n0ger8.jpeg)(https://files.catbox.moe/n0ger8.jpeg)
