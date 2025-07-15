@@ -14,7 +14,7 @@ IM WORKING ON IT 😭😭😭
  No DNI‎ ‎ <img width="18" src="https://file.garden/ZfLodVA4xzfd-zj7/4%20green/clover15">‎ ‎ Pearl Houzukis 1# fan!!! 
 </p>
 <p align="center">
- Main Interests:‎ ‎ Splatoon,‎ One Piece, Witch Hat Atelier, Deltarune/Undertale, OSC, Uma Musume, Cookie Run <a href=link>++</a> 
+ Main Interests:‎ ‎ Splatoon,‎ One Piece, Witch Hat Atelier, Deltarune/Undertale, OSC, Uma Musume, Cookie Run <a href=https://rentry.co/ezratoes>++</a> 
 </p>
 
 
