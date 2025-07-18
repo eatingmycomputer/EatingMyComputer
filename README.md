@@ -4,7 +4,7 @@ IM WORKING ON IT 😭😭😭
 
 "I wish that I could fall a little bit harder!" 
 <p align="center">
-    <img width="800" src="https://i.postimg.cc/0Q6c3GCJ/ab89af8e8b0eaac0d6bc31b78ecfe2c3.png">
+    <img width="600" src="https://i.postimg.cc/0Q6c3GCJ/ab89af8e8b0eaac0d6bc31b78ecfe2c3.png">
 </p>
 
 <p align="center">
