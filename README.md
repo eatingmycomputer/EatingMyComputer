@@ -1,10 +1,10 @@
 IM WORKING ON IT 😭😭😭
 
-![](https://komarev.com/ghpvc/?username=eatingmycomputer&color=ed8662&label=Races+Won)
+![](https://komarev.com/ghpvc/?username=eatingmycomputer&color=9e475d&label=👢)
 
 "I wish that I could fall a little bit harder!" 
 <p align="center">
-    <img width="800" src="https://i.postimg.cc/hjGGJfvD/silence-suzuka-uma-musume.gif">
+    <img width="800" src="https://i.postimg.cc/0Q6c3GCJ/ab89af8e8b0eaac0d6bc31b78ecfe2c3.png">
 </p>
 
 <p align="center">
