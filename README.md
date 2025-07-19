@@ -8,13 +8,13 @@ IM WORKING ON IT 😭😭😭
 </p>
 
 <p align="center">
- Ezra‎ ‎ <img width="18" src="https://i.postimg.cc/3wF6MVyh/4-FB2-A429-F5-C4-4-E4-F-96-DD-6-B4930249-E23.gif">‎ ‎ He / Him ‎ pix ‎ Australian
+ Ezra‎ ‎ <img width="18" src="https://i.postimg.cc/HLWFnpwQ/25bu5m.gif">‎ ‎ He / Him ‎ <img width="18" src="https://i.postimg.cc/MGsNjh5g/of7ws1.gif"> ‎ Australian
 </p>
 <p align="center">
- AuDHD + GAD ocd whatever ‎ pix ‎ 13-15
+ AuDHD + GAD ocd ‎ <img width="18" src="https://i.postimg.cc/506G5nky/b42d6438-original.gif"> ‎ 13-15
 </p>
 <p align="center">
- No DNI‎ ‎ <img width="18" src="https://file.garden/ZfLodVA4xzfd-zj7/4%20green/clover15">‎ ‎ Pearl Houzukis 1# fan!!! ‎ pix ‎ Marina Ida + Sanji hvykin/fictkin
+ No DNI‎ ‎ <img width="18" src="https://i.postimg.cc/DfGp2W99/IMG-4138.gif">‎ ‎ Pearl Houzukis 1# fan!!! ‎ <img width="18" src="https://i.postimg.cc/x1n4p0FW/fb8555af.gif"> ‎ Marina Ida + Sanji hvykin/fictkin
 </p>
 <p align="center">
  I'm normally quite nervous at first but i can be the most annoying person ever if you get to know me
