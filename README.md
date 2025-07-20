@@ -20,7 +20,7 @@ IM WORKING ON IT 😭😭😭
  I'm normally quite nervous at first but i can be the most annoying person ever if you get to know me
 </p>
 <p align="center">
- Main Interests:‎ ‎ Splatoon,‎ One Piece, Witch Hat Atelier, Deltarune/Undertale, OSC, Uma Musume, Cookie Run <a href=https://rentry.co/ezratoes>++</a> 
+ Main Interests:‎ ‎ Splatoon,‎ One Piece, Witch Hat Atelier, Deltarune/Undertale, OSC, Uma Musume, Gachiakuta, Cookie Run <a href=https://rentry.co/ezratoes>++</a> 
 </p>
 <p align="center">
  I have a typing quirk(???) where i sometimes just put the letter s at the end of words that arent plural its all namz fault
