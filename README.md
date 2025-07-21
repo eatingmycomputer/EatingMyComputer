@@ -29,7 +29,7 @@ IM WORKING ON IT 😭😭😭
 
 
 <p align="center">
-  <a href=https://rentry.co/houzuki>Rentry</a> ⠀ <a href=https://eatingmycomputer.straw.page/>Strawpage</a> ⠀ <a href=noneyetboo>Atabook</a>
+  <a href=https://rentry.co/houzuki>Rentry</a> ⠀ <a href=https://eatingmycomputer.straw.page/>Strawpage</a> ⠀ <a href=https://eatingmycomputer.atabook.org/>Atabook</a>
 </p>
 <p align="center">
  rentry and strawpage are kinda outdated sorry i fixes it soon
