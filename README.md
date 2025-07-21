@@ -14,7 +14,7 @@ IM WORKING ON IT 😭😭😭
  AuDHD + GAD ocd ‎ <img width="18" src="https://i.postimg.cc/506G5nky/b42d6438-original.gif"> ‎ 13-15
 </p>
 <p align="center">
- No DNI‎ ‎ <img width="18" src="https://i.postimg.cc/DfGp2W99/IMG-4138.gif">‎ ‎ Pearl Houzukis 1# fan!!! ‎ <img width="18" src="https://i.postimg.cc/x1n4p0FW/fb8555af.gif"> ‎ Marina Ida + Sanji hvykin/fictkin
+ DNI br*ts and am*ri*ans (no DNI)‎ ‎ <img width="18" src="https://i.postimg.cc/DfGp2W99/IMG-4138.gif">‎ ‎ Pearl Houzukis 1# fan!!! ‎ <img width="18" src="https://i.postimg.cc/x1n4p0FW/fb8555af.gif"> ‎ Marina Ida + Sanji hvykin/fictkin
 </p>
 <p align="center">
  I'm normally quite nervous at first but i can be the most annoying person ever if you get to know me
