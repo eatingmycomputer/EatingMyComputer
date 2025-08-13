@@ -16,15 +16,10 @@ IM WORKING ON IT 😭😭😭
 <p align="center">
  DNI br*ts and am*ri*ans (no DNI)‎ ‎ <img width="18" src="https://i.postimg.cc/DfGp2W99/IMG-4138.gif">‎ ‎ Pearl Houzukis 1# fan!!! ‎ <img width="18" src="https://i.postimg.cc/x1n4p0FW/fb8555af.gif"> ‎ Marina Ida + Sanji hvykin/fictkin
 </p>
-<p align="center">
- I'm normally quite nervous at first but i can be the most annoying person ever if you get to know me
-</p>
+
 <p align="center">
  Main Interests:‎ ‎ Splatoon,‎ One Piece, Witch Hat Atelier, Deltarune/Undertale, OSC, Uma Musume, Gachiakuta, Cookie Run <a href=https://rentry.co/ezratoes>++</a> 
-</p>
-<p align="center">
- I have a typing quirk(???) where i sometimes just put the letter s at the end of words that arent plural its all namz fault
-</p>
+
 
 
 
@@ -35,15 +30,11 @@ IM WORKING ON IT 😭😭😭
  rentry and strawpage are kinda outdated sorry i fixes it soon
 </p>
 
-<p align="right">    
-"I wish that I could fall like it would even matter!"
-</p>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zk3kqasav3276idzo94kiu70w&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffff00&interchange=false&bar_color=d94f00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 
 i will put like most of this info into one of my other readme things goonbye
 
 
-my wife and husband ⬇️⬇️
 
-<img width="300" src="https://files.catbox.moe/n0ger8.jpeg"> <img width="300" src="https://i.pinimg.com/736x/df/9a/2f/df9a2f4a100f05ee32d80b9985c206a2.jpg">
-
-i go feral when i see yamato my gang knows this
