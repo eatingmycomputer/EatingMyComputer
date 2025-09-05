@@ -1,20 +1,20 @@
 IM WORKING ON IT 😭😭😭
 
-![](https://komarev.com/ghpvc/?username=eatingmycomputer&color=9e475d&label=👢)
+![](https://komarev.com/ghpvc/?username=eatingmycomputer&color=0b0b3b&label=(¬_¬"))
 
-"I wish that I could fall a little bit harder!" 
-<p align="center">
-    <img width="600" src="https://i.postimg.cc/0Q6c3GCJ/ab89af8e8b0eaac0d6bc31b78ecfe2c3.png">
-</p>
 
 <p align="center">
- Ezra‎ ‎ <img width="18" src="https://i.postimg.cc/HLWFnpwQ/25bu5m.gif">‎ ‎ He / Him ‎ <img width="18" src="https://i.postimg.cc/MGsNjh5g/of7ws1.gif"> ‎ Australian
+    <img width="600" src="https://i.postimg.cc/RZZ8j9Cb/PC-Computer-Deltarune-Playable-Characters-Kris-Chapter-3-4-copy-scaled-14x-pngcrushed.png">
+</p>
+
+<p align="center">
+ Ezra‎ ‎ <img width="18" src="https://i.postimg.cc/05Bb01nQ/IMG-6981.gif">‎ ‎ He / Him ‎ <img width="18" src="https://i.postimg.cc/T3r1xL6L/IMG-6982.gif"> ‎ Australian
 </p>
 <p align="center">
- AuDHD + GAD ocd ‎ <img width="18" src="https://i.postimg.cc/506G5nky/b42d6438-original.gif"> ‎ 13-15
+ AuDHD + GAD ocd ‎ <img width="18" src="https://i.postimg.cc/pTHHF4xQ/ezgif-876946700462b9.webp"> ‎ 13-15
 </p>
 <p align="center">
- DNI br*ts and am*ri*ans (no DNI)‎ ‎ <img width="18" src="https://i.postimg.cc/DfGp2W99/IMG-4138.gif">‎ ‎ Pearl Houzukis 1# fan!!! ‎ <img width="18" src="https://i.postimg.cc/x1n4p0FW/fb8555af.gif"> ‎ Marina Ida + Sanji hvykin/fictkin
+ no DNI‎ ‎ <img width="18" src="https://i.postimg.cc/sXWD77tS/PC-Computer-Deltarune-Playable-Characters-Kris-Chapter-3-4-copy-3.png">‎ ‎ Pearl Houzukis 1# fan!!! ‎ <img width="18" src="https://files.catbox.moe/gb9kjo.gif"> ‎ Marina Ida + Sanji hvykin/fictkin
 </p>
 
 <p align="center">
