@@ -4,7 +4,7 @@
 
 
 <p align="center">
-    <img width="600" src="https://i.postimg.cc/RZZ8j9Cb/PC-Computer-Deltarune-Playable-Characters-Kris-Chapter-3-4-copy-scaled-14x-pngcrushed.png">
+    <img width="600" src="https://i.postimg.cc/BvVGtYR9/Unknown.jpg">
 </p>
 
 <p align="center">
