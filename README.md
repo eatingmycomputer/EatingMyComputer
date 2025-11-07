@@ -8,13 +8,13 @@
 </p>
 
 <p align="center">
- Ezra‎ ‎ <img width="18" src="https://i.postimg.cc/05Bb01nQ/IMG-6981.gif">‎ ‎ He / Him ‎ <img width="18" src="https://i.postimg.cc/T3r1xL6L/IMG-6982.gif"> ‎ Australian
+ Ezra‎ ‎ <img width="18" src="https://i.imgur.com/5oBV0ok.gif">‎ ‎ He / Him ‎ <img width="18" src="https://i.imgur.com/1p7QTmr.gif"> ‎ Australian
 </p>
 <p align="center">
- AuDHD + GAD ocd ‎ <img width="18" src="https://i.postimg.cc/pTHHF4xQ/ezgif-876946700462b9.webp"> ‎ 13-15
+ AuDHD + GAD ocd ‎ <img width="18" src="https://64.media.tumblr.com/3f0889f3d270574ddaafdb64e45b6130/cbcfc1adbb9fbf6f-bc/s75x75_c1/339f7b408b0058c62414f573bc7f1a97e63b1e5d.gifv"> ‎ 13-15
 </p>
 <p align="center">
- no DNI‎ ‎ <img width="18" src="https://i.postimg.cc/sXWD77tS/PC-Computer-Deltarune-Playable-Characters-Kris-Chapter-3-4-copy-3.png">‎ ‎ Pearl Houzukis 1# fan!!! ‎ <img width="18" src="https://files.catbox.moe/gb9kjo.gif"> ‎ Marina Ida + Sanji hvykin/fictkin
+ no DNI‎ ‎ <img width="18" src="https://64.media.tumblr.com/185628ea97169a2481ed2c855dd741c0/0a02bf4f24f98baf-73/s75x75_c1/09114318414635ff70f758b093fe6fda350055b0.gifv">‎ ‎ Pearl Houzukis 1# fan!!! ‎ <img width="18" src="https://files.catbox.moe/7whiay.gif"> ‎ Marina Ida + Sanji hvykin/fictkin
 </p>
 
 <p align="center">
