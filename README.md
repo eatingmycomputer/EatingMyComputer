@@ -18,7 +18,7 @@
 </p>
 
 <p align="center">
- Main Interests:‎ ‎ Splatoon,‎ One Piece, Witch Hat Atelier, Deltarune/Undertale, OSC, Uma Musume, Gachiakuta, Cookie Run <a href=https://rentry.co/ezratoes>++</a> 
+ Main Interests:‎ ‎ Splatoon,‎ One Piece, Witch Hat Atelier, Deltarune/Undertale, OSC, Uma Musume, Gachiakuta, Homestuck <a href=https://rentry.co/ezratoes>++</a> 
 
 
 
