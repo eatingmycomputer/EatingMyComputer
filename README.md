@@ -1,8 +1,8 @@
 
 
-![](https://komarev.com/ghpvc/?username=eatingmycomputer&color=0b0b3b&label=(¬_¬"))
+![](https://komarev.com/ghpvc/?username=eatingmycomputer&color=96876e&label=🏷️)
 
-
+_"I thought if I could retrieve the past I lost..."_
 <p align="center">
     <img src="https://i.postimg.cc/P5Jm76d5/okayy.png">
 </p>
@@ -35,6 +35,13 @@
 
 <p align="center">
   <a href=https://rentry.co/houzuki>Rentry</a> ⠀ <a href=https://eatingmycomputer.straw.page/>Strawpage</a> ⠀ 
+  
+<p align="center">
+    <img src="https://i.postimg.cc/3RWJpJD2/okayyyyyy.png">
+</p>
+<p align="right">
+<i>"...My joy would be as genuine as yours."</i>
+</p>
 
 
 
