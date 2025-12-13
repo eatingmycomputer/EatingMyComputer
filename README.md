@@ -12,8 +12,11 @@
 </p>
 <p align="center">
 <details> <summary><ins><strong>Main</strong></ins> Interests  --- 　　　　　13-15yrs　　　<a href=https://splatoonwiki.org/wiki/Pearl><strong><ins>P</ins></strong></a>earl's No1 Fan!</summary>　　　　　　　　　　　　　　　　
-<li> Splatoon　　　　　　　　• UTDR　　　　• Witch Hat Atelier</li>
-<li> One Piece　　　　　　　　• Homestuck</li>
+<li> Splatoon</li>
+<li> One Piece</li>
+<li>Witch Hat Atelier</li>
+<li>UTDR</li>
+<li>Homestuck</li>
 </details>
 </p>
 
