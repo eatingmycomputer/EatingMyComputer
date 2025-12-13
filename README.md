@@ -6,9 +6,9 @@
 <p align="center">
     <img src="https://i.postimg.cc/P5Jm76d5/okayy.png">
 </p>
-<img align="left" width="256" src="https://i.postimg.cc/dtv4VPYJ/okayyy.png">
+<img align="left" width="200" src="https://i.postimg.cc/dtv4VPYJ/okayyy.png">
 <p align="center">
-<ins><strong>EZRA</strong></ins> 　　　　　<strong>H</strong>e　/　Him｡ᴗ ᴗ )　　　　Orufrey <ins><strong>Ent</strong></ins>husiast<img align="right" width="256" src="https://i.postimg.cc/ydKGHqf5/okayyyy.png">
+<ins><strong>EZRA</strong></ins> 　　　　　<strong>H</strong>e　/　Him｡ᴗ ᴗ )　　　　Orufrey <ins><strong>Ent</strong></ins>husiast<img align="right" width="200" src="https://i.postimg.cc/ydKGHqf5/okayyyy.png">
 </p>
 <p align="center">
 <details> <summary><ins><strong>Main</strong></ins> Interests  --- 　　　　　13-15yrs　　　<a href=https://splatoonwiki.org/wiki/Pearl><strong><ins>P</ins></strong></a>earl's No1 Fan!</summary>　　　　　　　　　　　　　　　　
