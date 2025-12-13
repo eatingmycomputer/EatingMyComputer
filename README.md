@@ -8,7 +8,7 @@
 </p>
 <img align="left" width="256" src="https://i.postimg.cc/dtv4VPYJ/okayyy.png">
 <p align="center">
- **Ezra**‎ ‎ <img width="18" src="https://i.imgur.com/5oBV0ok.gif">‎ ‎ He / Him ‎ <img width="18" src="https://i.imgur.com/1p7QTmr.gif"> ‎ Australian <img align="right" width="256" src="https://i.postimg.cc/ydKGHqf5/okayyyy.png">
+ Ezra ‎ <img width="18" src="https://i.imgur.com/5oBV0ok.gif">‎ ‎ He / Him ‎ <img width="18" src="https://i.imgur.com/1p7QTmr.gif"> ‎ Australian <img align="right" width="256" src="https://i.postimg.cc/ydKGHqf5/okayyyy.png">
 </p>
 
 
