@@ -50,6 +50,10 @@ _"I thought if I could retrieve the past I lost..."_
   </a>
 </p>
 
+<p align="center">
+im only on safe server btw, i got banned from 18+ 🫩
+
+
 
 
 
