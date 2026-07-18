@@ -20,6 +20,8 @@ $\tiny{\textsf{placehold}}$
   </a>
   <a href=https://mettaton.atabook.org>ata</a> Rentry Strawpg
 
+  <a href="https://github.com/shinminase/marquee"><img src="mymarquee.svg">
+
 
 
 
