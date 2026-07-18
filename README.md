@@ -13,7 +13,7 @@ I ‹𝟹 <a href=https://splatoonwiki.org/wiki/Pearl><strong><ins>𝓟e</ins></
 derse dreamer
 <p align="right">            
 $\tiny{\textsf{placehold}}$
-<p align="right">  Rentry strawpage  <a href="https://github.com/kittinan/spotify-github-profile">
+<p align="right">  Rentry strawpage <a href=mettaton.atabook.org>atabook</a> <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31wcrpdfl3s22cun5izkeivc63pa&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 
