@@ -22,7 +22,8 @@ $\tiny{\textsf{placehold}}$
 
   <a href="https://github.com/shinminase/marquee"><img src="mymarquee.svg">
 
-
+<p align="center">            
+$\tiny{\textsf{psst this looks better on pc}}$
 
 
 
