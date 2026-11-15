@@ -18,7 +18,7 @@ $\tiny{\textsf{placehold}}$
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31wcrpdfl3s22cun5izkeivc63pa&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=true">
   </a>
-  <a href=https://mettaton.atabook.org>ata</a> Rentry <a href=https://nirvannathebandthe.straw.page/>Strawpg</a>
+  <a href=https://mettaton.atabook.org>ata</a> <a href=https://rentry.co/houzuki>Rentry</a> <a href=https://nirvannathebandthe.straw.page/>Strawpg</a>
 
   <a href="https://github.com/shinminase/marquee"><img src="mymarquee.svg">
 
